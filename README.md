@@ -11,3 +11,7 @@ This repository contains an in-depth analysis of Virat Kohli's performance in th
 
 Our aim is to highlight Kohli's contributions and milestones in the IPL.
 
+
+
+https://github.com/GaneshPatilDS/King-Kohli-s-IPL-Masterclass/assets/123234894/bdce493f-75c7-476e-a34c-931111dc6e38
+
